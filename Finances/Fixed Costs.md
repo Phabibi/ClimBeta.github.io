@@ -1,0 +1,9 @@
+-   Liability insurance
+-   Electricity
+-   Heat
+-   Security alarms and monitoring
+-   Web site maintenance
+-   [[Advertising]]	
+-   Route Setters 
+-   Maintaince *Holds, Wall, etc ..*
+-
